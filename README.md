@@ -2,15 +2,11 @@
 
 【网址发布】 ：https://www.ss2918.com
 
-【先锋骑兵】 ：https://www.xfqb.pw
+【先锋骑兵】 ：https://www.xfqb2.com
 
-【玖玖影院】 ：https://www.dy721.cc
+【阿西吧】 ：https://www.dy721.cc
 
-【女优爱吧】 ：https://www.tv28.net
-
-【兔女郎】 ：https://www.tu28.pw
-
-【看看秀】 ：https://www.kkxiu.xyz
+【天天追影】 ：https://www.tt1920.com
 
 【天堂鸟】 ：https://www.tv120.pw
 
